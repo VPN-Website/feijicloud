@@ -29,3 +29,4 @@ FeijiCloud 飞机云 ，老牌机场速鹰旗下的新晋分站，是用平价�
 
 ## 飞机云套餐订阅
 [![飞机云价格.jpg](https://s2.loli.net/2023/12/08/W8rY2pE9oeVcJnm.jpg)](https://go.51tz.cc/fjcloud)
+
