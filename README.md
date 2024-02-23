@@ -4,7 +4,7 @@ FeijiCloud 飞机云 ，老牌机场速鹰旗下的新晋分站，是用平价�
 ## 飞机云官网
 **飞机云官网最新地址**：[https://feijicloud.com](https://go.51tz.cc/fjcloud)
 
-[![飞机云.jpg](https://s2.loli.net/2023/11/28/XdGP2lkvg6xY1QS.jpg)](https://go.51tz.cc/fjcloud)
+[![飞机云机场.jpg](https://s2.loli.net/2024/02/23/plBxnmfL7FY5orv.jpg)](https://go.51tz.cc/fjcloud)
 
 ## 飞机云机场特点
 * 定价实惠算是便宜机场梯子，月付10元至50元，丰俭由人，高性价比；
