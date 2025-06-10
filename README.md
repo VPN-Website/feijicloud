@@ -2,9 +2,9 @@
 FeijiCloud 飞机云机场 ，老牌机场速鹰旗下的新晋分站，是用平价提供中高端翻墙节点的半公益机场梯子加速器。使用隧道中转优化线路与IPLC国际专线，采用SS/SSR/V2Ray协议，多达115条的优质线路节点主要集中在美国、日本、韩国、香港、台湾、新加坡等中国用户常用国家与地区。凭借超低的价格与超值的服务常年占据高性价比稳定机场推荐梯子推荐前三名。
 
 ## 飞机云官网
-**飞机云官网最新地址**：[https://feijicloud.com](https://go.ihaoke.vip/fjcloud)
+**飞机云官网最新地址**：[https://feijicloud.com](https://affg.cc/feji)
 
-[![飞机云机场.jpg](https://s2.loli.net/2024/02/23/plBxnmfL7FY5orv.jpg)](https://go.51tz.cc/fjcloud)
+[![飞机云机场.jpg](https://s2.loli.net/2024/02/23/plBxnmfL7FY5orv.jpg)](https://affg.cc/feji)
 
 ## 飞机云机场特点
 * 定价实惠算是便宜机场梯子，月付15元至50元，丰俭由人，高性价比；
@@ -28,22 +28,22 @@ FeijiCloud 飞机云机场 ，老牌机场速鹰旗下的新晋分站，是用�
 * 支持提交工单，响应快速，站内教程与软件完善；
 
 ## 飞机云套餐订阅
-[![飞机云价格.jpg](https://s2.loli.net/2023/12/08/W8rY2pE9oeVcJnm.jpg)](https://go.ihaoke.vip/fjcloud)  
+[![飞机云价格.jpg](https://s2.loli.net/2023/12/08/W8rY2pE9oeVcJnm.jpg)](https://affg.cc/feji)  
 飞机云机场套餐定价灵活，从月付9.9元到50元均可支持流媒体解锁，能够满足绝大部分的应用落地与不同的用户需求，极高性价比机场梯子。
 
 ## 飞机云机场测速(晚高峰)
-[![飞机云测速.jpg](https://s2.loli.net/2023/12/08/TElmno8SFXc7Lfw.jpg)](https://go.ihaoke.vip/fjcloud)
+[![飞机云测速.jpg](https://s2.loli.net/2023/12/08/TElmno8SFXc7Lfw.jpg)](https://affg.cc/feji)
 
 ## 飞机云跑路了吗-机场官网打不开-飞机云官网备用地址
 飞机云机场隶属速鹰旗下，由境外专业大型运维实体运营，跑路风险非常小。
 有时候飞机云机场官网打不开，是因为长城防火墙持续的侦测屏蔽，不要担心。
 你可以打开翻墙梯子登录官网，或者通过下面的飞机云机场备用地址进入。
-* [飞机云官网地址](https://go.ihaoke.vip/fjcloud)
+* [飞机云官网地址](https://affg.cc/feji)
 
 
 ## 飞机云机场怎么样
-毋庸置疑的，作为老牌速鹰旗下新晋机场分站，飞机云表现出色，是我们机场推荐首选。以超低的价格提供稳定高速的线路，同时配备快速响应的售后，都说明这是一家具备超高性价比的优质机场节点。如果您正在挑选心仪的翻墙机场梯子，相信[FeijiCloud-飞机云机场](https://go.ihaoke.vip/fjcloud)绝对不会令您失望。
+毋庸置疑的，作为老牌速鹰旗下新晋机场分站，飞机云表现出色，是我们机场推荐首选。以超低的价格提供稳定高速的线路，同时配备快速响应的售后，都说明这是一家具备超高性价比的优质机场节点。如果您正在挑选心仪的翻墙机场梯子，相信[FeijiCloud-飞机云机场](https://affg.cc/feji)绝对不会令您失望。
 
 ## 飞机云机场折扣优惠
-[**机场折扣优惠码领取入口**](https://ihaoke.vip/discount/)
+特惠包年7折优惠代码： FJ555
 
